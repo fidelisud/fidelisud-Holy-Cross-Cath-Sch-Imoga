@@ -1,1 +1,1 @@
-# fidelisud-Holy-Cross-Cath-Sch-Imoga
+# fidelisud-Holy-Cross-Catholic-Sch-Imoga
